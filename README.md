@@ -1,1 +1,1 @@
-# UniversityOfManagementAndTachnology.com
+# UniversityOfManagementAndTechnology.com
